@@ -69,9 +69,9 @@ A passionate **Digital Marketer**, **Graphic Designer**, **Motion Graphic Design
 
 Feel free to reach out, collaborate, or chat about any of my projects. I'm always excited to learn and collaborate with others.
 
-- ✉️ **Email**: [your-email@example.com](mailto:rmnkmal7@gmail.com)
-- 🔗 **LinkedIn**: [Your LinkedIn](https://www.linkedin.com/in/rmn-akmal-6068ab317/)
-- 🌍 **Portfolio**: [Your Portfolio](https://www.behance.net/rmnakmal)
+- ✉️ **Email**: [My E-Mail](mailto:rmnkmal7@gmail.com)
+- 🔗 **LinkedIn**: [My LinkedIn](https://www.linkedin.com/in/rmn-akmal-6068ab317/)
+- 🌍 **Portfolio**: [My Behance Portfolio](https://www.behance.net/rmnakmal)
 
 ---
 
