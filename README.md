@@ -1,4 +1,4 @@
-# 👋 Welcome to My GitHub! I'm [Your Name] 🎉
+# 👋 Welcome to My GitHub! I'm R.M.Noorul Akmal 🎉
 
 A passionate **Digital Marketer**, **Graphic Designer**, **Motion Graphic Designer**, **Editor**, and **Beginner Programmer** with a deep interest in **Networking** and a flair for creating visually stunning content. I enjoy learning new skills, solving problems, and developing digital solutions.
 
